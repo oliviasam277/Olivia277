@@ -1,1 +1,1 @@
-# Olivia277
+👩🏽‍💻 Olivia Sam-Odumo | Product Manager & Cybersecurity Enthusiast 🔐 | Building and securing fintech solutions through innovation, strategy, and digital trust. | Passionate about ethical hacking, data protection, and creating safer user experiences.
